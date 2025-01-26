@@ -1,1 +1,1 @@
-![bongo](https://github.com/user-attachments/assets/b8de1a32-907e-4b53-a3a1-6d6d1305aaf1)
+![Без названия (1)](https://github.com/user-attachments/assets/53cc0264-4ce4-409d-b03e-8609c7b49988)
